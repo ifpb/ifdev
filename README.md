@@ -17,3 +17,7 @@
 ## 4 Edição
 
 * [Carreira na área de Tecnologia da Informação](http://www.diofeher.net/talks/2018-08-27-si-tech/#/) - [Diógenes Fernandes](https://github.com/diofeher)
+
+## 5 Edição
+
+* Como cheguei até aqui? - [Moisés Guimarães](https://github.com/moisesguimaraes/)
