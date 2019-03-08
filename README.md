@@ -21,3 +21,8 @@
 ## 5 Edição
 
 * Como cheguei até aqui? - [Moisés Guimarães](https://github.com/moisesguimaraes/)
+
+## 6 Edição
+
+* Como cheguei até aqui? - [Francisco Dantas](https://www.linkedin.com/in/francisco-dantas-nobre-neto-76a003138/)
+* Como cheguei até aqui? - [Gregorio Melo](https://www.linkedin.com/in/gregoriomelo/)
