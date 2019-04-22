@@ -26,3 +26,8 @@
 
 * Como cheguei até aqui? - [Francisco Dantas](https://www.linkedin.com/in/francisco-dantas-nobre-neto-76a003138/)
 * Como cheguei até aqui? - [Gregorio Melo](https://www.linkedin.com/in/gregoriomelo/)
+
+## 7 Edição
+
+* Como cheguei até aqui? - [Daniel Dettmer](https://www.linkedin.com/in/daniel-dettmer-357b574a/)
+* Como cheguei até aqui? - [Ramon Pereira](https://www.linkedin.com/in/ramonpfsousa/)
