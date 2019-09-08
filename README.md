@@ -31,3 +31,8 @@
 
 * Como cheguei até aqui? - [Daniel Dettmer](https://www.linkedin.com/in/daniel-dettmer-357b574a/)
 * Como cheguei até aqui? - [Ramon Pereira](https://www.linkedin.com/in/ramonpfsousa/)
+
+## 87 Edição
+
+* Como cheguei até aqui? - [Nielson Rolim](https://www.linkedin.com/in/nielsonrolim/)
+* Como cheguei até aqui? - [Rimenes Ribeiro](https://www.linkedin.com/in/rimenes/)
